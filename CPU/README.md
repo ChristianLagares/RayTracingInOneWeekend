@@ -1,3 +1,0 @@
-# raytracinginoneweekend
-# raytracinginoneweekend
-# raytracinginoneweekend
